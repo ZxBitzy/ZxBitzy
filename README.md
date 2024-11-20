@@ -24,5 +24,6 @@ tiktok.com/@zxbitzy?lang=en
 185 subscribers
 195 videos
 26,045 views
+<p align="center"><img src="https://i.giphy.com/RThN0hOS2GO4M.gif" /></p>
 <!--
 **ZxBitzy/ZxBitzy** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
