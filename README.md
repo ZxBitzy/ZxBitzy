@@ -5,7 +5,7 @@
 - 👯 I’m looking to collaborate on ... not sure yet
 - 🤔 I’m looking for help with ... anything?
 - 💬 Ask me about ... something..?
-- 📫 How to reach me: ... uhhh, please leave a message after the tone.. **beep**
+- 📫 How to reach me: ... uhhh, please leave a message after the tone..
 - 😄 Pronouns: ... he/him
 - ⚡ Fun fact: ... I have never been out of the country.
 - 
