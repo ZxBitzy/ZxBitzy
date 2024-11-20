@@ -13,16 +13,16 @@ Youtube
 https://www.youtube.com/@ZxBitzy
 
 Twitch
-twitch.tv/zx_bitzy
+https://www.twitch.tv/zx_bitzy
 
 Instagram
-instagram.com/blake.wells_/?hl=en
+https://www.instagram.com/blake.wells_/?hl=en
 
 Twitter
-twitter.com/ZxBitzy
+https://www.twitter.com/ZxBitzy
 
 Tiktok
-tiktok.com/@zxbitzy?lang=en
+https://www.tiktok.com/@zxbitzy?lang=en
 
 185 subscribers
 195 videos
